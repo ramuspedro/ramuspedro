@@ -1,6 +1,6 @@
 ### 👋 Hello, I'm Pedro Ramos (ramuspedro)!
 
-💻 Software Engineer Tech Specialist [@ZupIT](https://www.zup.com.br/) <br>
+💻 Tech Lead and Software Engineer at [@ZupIT](https://www.zup.com.br/) <br>
 🏡 Brazilian, Based in São Paulo, SP. 
 
 ### 🌎 Find me around the web
