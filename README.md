@@ -5,6 +5,5 @@
 
 ### 🌎 Find me around the web
 
-🐦 https://twitter.com/ramuspedro <br>
 💼 https://www.linkedin.com/in/ramuspedro/ <br>
 🚀 https://ramuspedro.github.io/ <br>
